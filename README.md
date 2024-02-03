@@ -8,7 +8,7 @@
 
 - [วิธีการใช้งาน](#วิธีการใช้งาน)
 - [ใบอนุญาต](#ใบอนุญาต)
-- [Credit](#Credit)
+- [ติดต่อ](#ติดต่อ)
 
 ---
 
@@ -24,3 +24,4 @@
 ## ติดต่อ
 - Facebook -[ส้มตำปริญญา ตลาดม่วนใจ๋ มทส.ประตู 4](https://web.facebook.com/profile.php?id=100088038543596&locale=th_TH)
 - TikTok -[art_surasak1989](https://www.tiktok.com/@art_surasak1989)
+- Tel 064-8576256
